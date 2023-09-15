@@ -1,2 +1,2 @@
-# SAMARJEETDUBEY.github.io
+# samarjeetdubey.github.io
 Samarjeet Profile - Engineering Manager | Technical Leader | Architect | Developer 
